@@ -1,4 +1,4 @@
-## Hi there 👋
+## Yo what's good 👋
 
 freshman at U of I
 
