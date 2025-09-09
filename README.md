@@ -1,6 +1,6 @@
 ## Yo what's good 👋
 
-freshman at U of I 🟠🔵
+sophomore at U of I 🟠🔵
 
 <!--
 **retriyoshi/retriyoshi** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
